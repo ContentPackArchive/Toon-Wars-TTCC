@@ -2,7 +2,8 @@
 Toon Wars: Revenge of the Suits for Toontown Corporate Clash
 
 Twitter: https://twitter.com/Omega9Captain
-https://contentpacks.net
+
+Visit https://contentpacks.net for the latest updates.
 
 # Information
 
